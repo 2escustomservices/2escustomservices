@@ -1,4 +1,4 @@
-<p align="center"> Hi I’m mrfredtouhey aka pwnd2e 
+<p align="center"> Hi 
 Welcome to, 2e’s custom services
 We create aka copy pasta  anything and everything
 
